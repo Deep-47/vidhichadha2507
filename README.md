@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1zT9bsR0iTKhSEZTJLrThfmZ838HpALum/view?usp=sharing](https://drive.google.com/file/d/1zT9bsR0iTKhSEZTJLrThfmZ838HpALum/view?usp=sharing)
 
-- ⚡ Fun fact **I can crack bad jokes**
+- ⚡ Fun fact **I can crack bad jokes very much.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
